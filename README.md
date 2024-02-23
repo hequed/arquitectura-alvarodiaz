@@ -1,1 +1,1 @@
-# arquitectura-negroski
+# Arquitectura Alvaro Diaz
